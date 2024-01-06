@@ -1,0 +1,1 @@
+https://www.flaticon.com/ru/free-icons/reviews Иконка взята с данного сайта с изображениями.
